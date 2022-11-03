@@ -1,7 +1,7 @@
 # DAll-E2
 Graphic designer will never be replaced...yeah
 
-### YouTube will attract you, but when you are using it, you won't see the results of your demands.
+### YouTube will attract you, but when you are using it, you won't see the results of your demand but when you will use for Photoshop then its amazing.😜
 
 # Introduction
 
